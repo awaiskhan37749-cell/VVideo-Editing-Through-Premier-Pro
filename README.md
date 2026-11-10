@@ -1,1 +1,1 @@
-# VVideo-Editing-Through-Premier-Pro
+# Video-Editing-Through-Premier-Pro
